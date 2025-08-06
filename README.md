@@ -1,6 +1,6 @@
   </div>
 <div align=center> ⠀⠀⠀⠀
-<img width="400" src="https://litter.catbox.moe/gmcx47.png" alt="phainon emblem">
+<img width="400" src="https://files.catbox.moe/vyvald.png" alt="phainon emblem">
 
   
  — [rentry](https://rentry.co/phaion) — [atabook](https://sundays.atabook.org) — [carrd](https://kkkaat.carrd.co) —

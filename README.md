@@ -6,10 +6,8 @@
   
  — [rentry](https://rentry.co/haloviangel) — [atabook](https://sundays.atabook.org) —
 
-extra information about me:
-a little slow at first when dealing with strangers but trust me once i know your energy better im a LOT better.
-sunday is my fav character ever and i hate when he gets shipped or sexualized or anything like that so under no circumstances do that kinda stuff around me /srs. other than that go wild im a pretty chill person even if i tend to yap sometimes OKAY THATS ALL GO WILD GO CRAZY
-
+a little slow at first when dealing with strangers but once i know your energy better im a LOT more active.
+sunday is my favorite & i hate when he gets shipped or sexualized so dont do that goofy stuff around me /srs. other than that go wild im a pretty chill person even if i tend to yap sometimes <br>
 faves: sunday phainon anaxa robin columbina sandrone ronova istaroth <br>
 int: mainly hsr and gi, hi3rd, alienstage, milgram, drdt, houseki no kuni. <br>
 

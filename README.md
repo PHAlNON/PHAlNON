@@ -4,7 +4,7 @@
 <img width="400" src="https://files.catbox.moe/vyvald.png" alt="phainon emblem">
 
   
- — [rentry](https://rentry.co/haloviangel) — [atabook](https://sundays.atabook.org) — [carrd](https://kkkaat.carrd.co) —
+ — [rentry](https://rentry.co/haloviangel) — [atabook](https://sundays.atabook.org) —
 
 extra information about me:
 a little slow at first when dealing with strangers but trust me once i know your energy better im a LOT better.
